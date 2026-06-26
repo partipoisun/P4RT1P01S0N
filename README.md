@@ -2,23 +2,25 @@
 
 ★━━━━━━━━━━━━━━━━★
 
-Dσɳ'ƚ ɳҽҽԃ ƚԋҽ ʂყʂƚҽɱ
+Long ago
 
-Wҽ ƈαɳ ʅҽαʋҽ ιƚ ιϝ ɯҽ ƚɾყ
+Just like the Hearse you die to get in again
 
-Sԋσσƚ υρ ҽʋҽɾყƚԋιɳɠ ɯҽ ʂҽҽ
+We are so far from you
 
-Aɳԃ ɯҽ'ʅʅ ϝιɳԃ ιƚ σɳ ƚԋҽ ɯαʅʅ
+Burning on
 
-I ԋσρҽ ყσυ ԃιҽ
+Just like the match you strike to incinerate
 
-Mαɳιρυʅαƚισɳ
+The lives of everyone you know
 
-Jυʂƚ ƚσ ϝσɾɱ αɳ αʅιႦι
+And what's the worst you take
 
-Yσυ'ɾҽ ƚԋҽ σɳҽ ƚԋαƚ'ʂ ɾιɠԋƚ ϝσɾ ɱҽ
+From every heart you break?
 
-Aɳԃ ιϝ ԋҽαʋҽɳ ɯαɳƚʂ ƚσ ƚαƙҽ υʂ ƚԋҽყ ƈαɳ ƚɾყ
+And like the blade you'll stain
+
+Well, I've been holding on tonight
 
 ★━━━━━━━━━━━━━━━━★
 
